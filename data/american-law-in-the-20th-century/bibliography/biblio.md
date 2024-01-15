@@ -334,3 +334,66 @@
  * Page #10:
    > 132 Dubofsky, State and Labor, p. 62.
 
+ * Page #10:
+   > U.S. Compiled Statutes (1901), §§5473, 5369, 5368. 2
+
+ * Page #10:
+   > 2 Annual Report, Att'y General of the United States for the Year 1905 (1905), p. 121.
+
+ * Page #10:
+   > 3 See, in general, Lawrence M. Friedman, Crime and Punishment in American History (1993), chap. 12.
+
+ * Page #10:
+   > 5 Lawrence  M.  Friedman  and  Robert  V.  Percival,  The  Roots  of  Justice:  Crime  and Punishment in Alameda County, California, 1870–1910 (1981), p. 300.
+
+ * Page #11:
+   > 7 Paul W. Keve, Prisons and the American Conscience: A History of U.S. Federal Corrections (1991), p. 53.
+
+ * Page #11:
+   > 8 Friedman, Crime and Punishment, p. 270.
+
+ * Page #11:
+   > 10 John A. Noakes, ''A 'New Breed of Detective': The Rise of the fbi Special Agent,'' in Susan  S.  Silbey  and  Austin  Sarat,  eds.,  Studies  in  Law,  Politics,  and  Society  14:25 (1994).
+
+ * Page #11:
+   > 11 Samuel  Walker,  Popular  Justice:  A  History  of  American  Criminal  Justice  (1980),  pp. 183–189.
+
+ * Page #11:
+   > 12 See Claire Bond Potter, War on Crime: Bandits, G-Men, and the Politics of Mass Culture (1998).
+
+ * Page #11:
+   > 15 Sam Bass Warner and Henry B. Cabot, Judges and Law Reform (1936), pp. 33–34.
+
+ * Page #11:
+   > 16 Roscoe Pound and Felix Frankfurter, eds., Criminal Justice in Cleveland (1922), pp. v, vii.
+
+ * Page #11:
+   > 17 Annual Report, Director of Administrative O≈ce of the U.S. Courts, 1940 (1940), p. 15
+
+ * Page #11:
+   > 18 Note,  ''R.I.  Statistics,''  J.  American  Inst.  of  Criminal  Law  and  Criminology  31:475 (1941).
+
+ * Page #11:
+   > 19 Charles E. Clark and Harry Shulman, A Study of Law Administration in Connecticut (1937), table 112, p. 188.
+
+ * Page #11:
+   > 21 Eli Frank, ''Trying Criminal Cases Without Juries in Maryland,'' Virginia Law Review 17:253, 258, 259, 263 (1930).
+
+ * Page #11:
+   > 22 William  J.  Blackburn,  The  Administration  of  Criminal  Justice  in  Franklin  County, Ohio (1935), p. 62.
+
+ * Page #11:
+   > 25 On  the  history  of  plea  bargaining,  see  Lawrence  M.  Friedman,  ''Plea  Bargaining  in Historical  Perspective,''  Law  and  Society  Review  13:247  (1949);  George  Fisher,  ''Plea Bargaining's Triumph,'' Yale L.J. 109:855 (2000).
+
+ * Page #11:
+   > 26 Friedman and Percival, Roots of Justice, pp. 177–178.
+
+ * Page #11:
+   > 28 Illinois Crime Survey (1929), p. 241.
+
+ * Page #11:
+   > 30 Irvin S. Cobb, Exit Laughing (1942), p. 198.
+
+ * Page #11:
+   > 31 Leon Green, Judge and Jury (1930), p. 403.
+
